@@ -24,4 +24,5 @@ Having built a strong foundation in Mathematics and Statistical Sciences through
 - Time Management
 
 
-## [GitHub Profile](https://drive.google.com/file/d/1ZsOrVnofZDV2SUgnLy6PJi9gUfn6-nGM/view?usp=sharing)
+## Resume
+[Resume](https://drive.google.com/file/d/1ZsOrVnofZDV2SUgnLy6PJi9gUfn6-nGM/view?usp=sharing)
